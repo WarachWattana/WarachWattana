@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Twitch
 - 📫 How to reach me via email
 - 😄 Pronouns: as Camera,It
-- ⚡ Fun fact: "HUH"
+- ⚡ Fun fact: "HUH" By Cat
 
 <!---
 WarachWattana/WarachWattana is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
